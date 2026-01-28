@@ -1,6 +1,2 @@
-<img width="625" height="293" alt="Image" src="https://github.com/user-attachments/assets/7faa1c82-a6a6-4ef3-9fb2-6b268fd2a8ac" />
-
-this malicious arrogant boy] nyaaa~ nghhh~~ thank yewww~
-[ru c+h] nyaaaaaaaaah~~~~
-
+<img width="580" height="290" alt="Image" src="https://github.com/user-attachments/assets/75d18918-bc27-4a87-8568-a2edcdc5fe39" />
 GGGUYS I NEED AVEN BRO TRUST ME
