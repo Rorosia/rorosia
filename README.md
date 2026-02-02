@@ -1,3 +1,3 @@
-<img width="750" height="844" alt="Image" src="https://github.com/user-attachments/assets/576adc2c-b735-4688-9770-76cb868a54e3" />
+<img width="380" height="300" alt="Image" src="https://github.com/user-attachments/assets/b9d20728-8dad-4dc4-ba26-c9792a575c94" />
 
 haha... yes babe be my friend . . . :)
